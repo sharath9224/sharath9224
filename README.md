@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **Cryptocurrency data analysis real time**
 
-- 🌱 I’m currently learning **Machine learning,Aws,Pyspark,Azure,Hadoop**
+- 🌱 I’m currently learning **Machine learning,Aws,Pyspark,Hadoop**
 
 - 🤝 I’m looking for help with **Cryto currency Data analysis**
 
