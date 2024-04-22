@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **sharathkumarreddy52@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/19Cwhq7bIyMQz-DHo0DdEk7yrFq38_uhg/view?usp=sharing](https://drive.google.com/file/d/19Cwhq7bIyMQz-DHo0DdEk7yrFq38_uhg/view?usp=sharing](https://drive.google.com/file/d/1LLF2AOCC_zOvlLbMVWycGnJjYRqjeyEt/view?usp=drive_link))
+- 📄 Know about my experiences [https://drive.google.com/file/d/1LLF2AOCC_zOvlLbMVWycGnJjYRqjeyEt/view?usp=drive_link]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
